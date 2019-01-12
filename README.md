@@ -97,6 +97,7 @@ dragana.m@etf.bg.ac.rs
 **_Додатни материјали_**
 
 ▪ https://en.wikipedia.org/wiki/Santorini_(game)
+
 ▪ http://www.boardspace.net/santorini/english/santorini-rules.html
 
 
